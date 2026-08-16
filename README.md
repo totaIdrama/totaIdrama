@@ -5,3 +5,5 @@
 <p align="center">$\small\color{#8a8b61}{\textsf{ᐢ ƙitㅤㅤᵒʳ󠀠󠀠󠀠󠀠ㅤㅤƙaede ᐢ}}$
 <p align="center">$\tiny\color{#8a8b61}{\textsf{𝓈he𝒽erㅤ⑅ㅤ⑦teenㅤ⑅ㅤkaede fictkin}}$
 <p align="center">$\tiny\color{#8a8b61}{\textsf{ⓒ*ⓗㅤa̲l̲w̲a̲y̲s̲ㅤwelcome}}$
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ⓐⓣⓐ](https://saimatsu.atabook.org/)ㅤㅤ[ⓢⓣⓡⓐⓦ](https://shuidae.straw.page/)
